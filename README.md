@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Grazi Dev em Dobro 😁
+## Bem-vindo(a) ao perfil da Grazi 😁
 
  <div>
    <a href="https://github.com/Grazi270521">
